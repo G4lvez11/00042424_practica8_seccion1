@@ -1,1 +1,0 @@
-# 00042424_practica8_seccion1
